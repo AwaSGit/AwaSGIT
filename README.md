@@ -1,4 +1,3 @@
-## Hi there 👋
 
 # Hello, moi c'est Awa ! 👋
 
